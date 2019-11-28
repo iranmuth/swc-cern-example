@@ -1,0 +1,3 @@
+- chop onion
+- chop Avacado
+- mix well
